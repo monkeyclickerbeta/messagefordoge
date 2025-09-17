@@ -6,7 +6,7 @@ i will keep making more and more domains no matter how many times you take it do
 
 ONE OF THE MOST OP ONE IS THAT YOU CANT TAKE IT DOWN (IF YOU CANT FIND THE URL OR GITHUB REPO AND GUITHUB ACCOUNT YOU CANT TAKE IT DOWN
 
-## why dont you give up?:
+## why dont you give up?
 because im never going to give up on Arctc 1.0
 
 do yall even care anyway huh?:
