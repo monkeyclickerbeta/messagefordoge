@@ -1,13 +1,12 @@
-ok doge let me tell you something okay? Arctic 1.0 will always be up and always work no matter what you cant stop me at all no matter how much DMCA Takedowns you do you wont stop me let explain how you cant stop me
-
-1. im using a VPS with unlimited domains
-
-2. i will keep making more and more domains no matter how many times you take it down
-
-3. ONE OF THE MOST OP ONE IS THAT YOU CANT TAKE IT DOWN (IF YOU CANT FIND THE URL OR GITHUB REPO AND GUITHUB ACCOUNT YOU CANT TAKE IT DOWN
-
-why dont you give up?: 1. because im never going to give up on Arctc 1.0
-
-2. do yall even care anyway huh?: 1. i littery have like 10 discord server members 2. theirs other people skidding your other websites 3. its a older github repo that you made and worked on
-
-3. now thanks for reading the Arctic 1.0 fuckoff doge message
+Arctic 1.0
+Hey Doge, here’s the deal: Arctic 1.0 will always be online and working, no matter what. You can’t stop me, even with DMCA takedowns. Here’s why:
+I’m using a VPS with unlimited domains.
+I will keep creating new domains no matter how many times you take them down.
+The most powerful part: you can’t take it down if you can’t find the URL, GitHub repo, or GitHub account.
+Why don’t I give up?
+Because I’m never giving up on Arctic 1.0.
+Do you even care?
+I literally have about 10 Discord server members.
+Others are copying your websites.
+This is an older GitHub repo that you made and worked on.
+Thanks for reading the Arctic 1.0 message.
