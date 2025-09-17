@@ -18,4 +18,4 @@ do yall even care anyway huh?:
  3. its a older github repo that you made and worked on
 
 
-now thanks for reading the Arctic 1.0 fuckoff doge message
+## now thanks for reading the Arctic 1.0 fuckoff doge message
